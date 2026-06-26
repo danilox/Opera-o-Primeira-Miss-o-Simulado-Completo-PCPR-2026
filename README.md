@@ -1,0 +1,1 @@
+# Opera-o-Primeira-Miss-o-Simulado-Completo-PCPR-2026
